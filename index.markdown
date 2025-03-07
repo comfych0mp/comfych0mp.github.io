@@ -9,4 +9,4 @@ profile_picture:
 ---
 Welcome to comfych0mp! 
 
-Om nom nom nom nom nom nom
+Professional classical musician and foodie based in Western PA. Young enough to be getting boba consistently, old enough to afford Omakase. 
